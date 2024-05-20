@@ -1,1 +1,1 @@
-The Volkswagen Beetle, originally designed in the 1930s but produced after World War II, became one of the most iconic cars of the 20th century, known for its simplicity, reliability, and affordability.
+The Willys-Knight, introduced in 1914 but produced throughout the 1920s, featured an innovative sleeve-valve engine design, offering smooth and quiet operation compared to conventional engines.
