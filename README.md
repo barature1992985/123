@@ -1,1 +1,1 @@
-The Oldsmobile 98, introduced in 1941 but produced into the post-war era, was a flagship model known for its powerful engine, luxurious amenities, and cutting-edge technology.
+The Willys-Overland Jeep Station Wagon, introduced in 1946, was one of the first mass-produced all-steel station wagons, offering versatility and ruggedness for post-war families.
