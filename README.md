@@ -1,1 +1,1 @@
-The Nash Motors Company, founded in 1916, gained popularity in the 1920s with models like the Nash Advanced Six, known for their innovative engineering and comfortable ride.
+The Cadillac Automobile Company, founded in 1902, was one of the first luxury car manufacturers in the United States, known for its high-quality craftsmanship and innovative engineering.
