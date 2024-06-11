@@ -1,1 +1,1 @@
-The Buick Motor Company, founded in 1903, quickly became one of the largest automobile manufacturers in the United States, known for its durable and reliable cars.
+The first recorded automobile race took place in 1894, but competitive racing gained popularity in the early 1900s, leading to the development of faster and more powerful cars.
