@@ -1,1 +1,1 @@
-The Willys-Overland Jeep Station Wagon, introduced in 1946, was one of the first mass-produced all-steel station wagons, offering versatility and ruggedness for post-war families.
+The Chrysler Corporation was founded in 1925 by Walter Chrysler, quickly becoming one of the "Big Three" American automakers alongside Ford and General Motors.
