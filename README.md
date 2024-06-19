@@ -1,1 +1,1 @@
-Civilian automobile production in the United States was largely suspended during World War II, as factories were repurposed for war production and resources were redirected to support the war effort.
+The Lincoln Continental, introduced in 1940 but produced after World War II, was a luxury car favored by celebrities and dignitaries for its elegant design and refined performance.
