@@ -1,1 +1,1 @@
-The Lincoln Continental, introduced in 1940 but produced after World War II, was a luxury car favored by celebrities and dignitaries for its elegant design and refined performance.
+The Stanley Rocket, built by the Stanley brothers in 1906, set the world speed record for a steam-powered car, reaching a top speed of 127.66 mph at Ormond Beach, Florida.
