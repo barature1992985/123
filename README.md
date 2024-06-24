@@ -1,1 +1,1 @@
-The Stanley Rocket, built by the Stanley brothers in 1906, set the world speed record for a steam-powered car, reaching a top speed of 127.66 mph at Ormond Beach, Florida.
+The Winton Bullet No. 1, built by Alexander Winton in 1903, set the land speed record of 68.18 mph, demonstrating the potential of automobiles for speed and performance.
