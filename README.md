@@ -1,1 +1,1 @@
-The Great Depression, which began with the stock market crash of 1929, had a profound impact on the automotive industry, leading to widespread layoffs, factory closures, and consolidation among automakers.
+The Peerless Motor Car Company, founded in 1900, ceased automobile production in 1931 after struggling to compete with larger automakers during the economic downturn of the late 1920s.
