@@ -1,1 +1,1 @@
-The Buick Motor Company, founded in 1903, quickly became one of the largest automobile manufacturers in the United States, known for its durable and reliable cars.
+The Jeep, originally developed for military use by Willys-Overland and Ford, became an iconic vehicle of World War II and laid the foundation for the modern SUV.
