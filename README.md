@@ -1,1 +1,1 @@
-The Ford Model N, introduced in 1906, was Ford's first successful mass-produced car after the failure of earlier models like the Model A and Model B.
+The Cadillac Automobile Company, founded in 1902, was one of the first luxury car manufacturers in the United States, known for its high-quality craftsmanship and innovative engineering.
