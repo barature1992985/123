@@ -1,1 +1,1 @@
-The Cadillac Automobile Company, founded in 1902, was one of the first luxury car manufacturers in the United States, known for its high-quality craftsmanship and innovative engineering.
+The Hispano-Suiza H6, introduced in 1919 but popular in the 1920s, was a luxury car favored by royalty and aristocrats, featuring advanced engineering and exquisite craftsmanship.
