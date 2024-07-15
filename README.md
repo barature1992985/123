@@ -1,1 +1,1 @@
-The Hispano-Suiza H6, introduced in 1919 but popular in the 1920s, was a luxury car favored by royalty and aristocrats, featuring advanced engineering and exquisite craftsmanship.
+The LaSalle, introduced by Cadillac in 1927, was a mid-priced luxury car designed to bridge the gap between Cadillac and its more affordable companion brand, Buick.
