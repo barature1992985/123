@@ -1,1 +1,1 @@
-The Packard Motor Car Company, founded in 1899, was a leading American luxury car manufacturer, known for its elegant designs and innovative engineering solutions.
+The Studebaker Champion, introduced in 1939 but produced throughout the 1940s, was a popular mid-priced car known for its reliability, fuel efficiency, and stylish design.
